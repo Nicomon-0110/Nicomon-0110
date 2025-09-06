@@ -9,4 +9,6 @@
 
 🌍 Languages: English, Dutch, Hungarian
 
+✝️ Luke 1:37 – “For with God nothing shall be impossible.”
+
 💬 Discord: Nicomon0110
